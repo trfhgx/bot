@@ -5,5 +5,5 @@ For More Information Contact Me **_!RG Mohaamed trfhgx-Huler-Closed#2581_**
 No CopyRights For This Bot You can Dowloand  it and upload it For free 
 `Without copyrights``
 ```markdown
-#I hope You Like the Bot ! 
+I hope You Like the Bot ! 
 ```
